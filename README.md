@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RomanKova (Roman Kovalchyk)
 - 👀 I’m interested in surviving in Canada 
 - 🌱 I’m currently learning too much of different things (mostly math and programming) 
-- 💞️ I’m looking to someone  
+- 💞️ I’m not looking for anything 
 - 📫 You can reach me by e-mail: kov-rv007@ukr.net 
 
 <!---
