@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RomanKova (Roman Kovalchyk)
 - 👀 I’m interested in surviving in Canada  
-- 💞️ I’m not looking for a job
+- 💞️ I’m looking for a job
 - 📫 You can reach me by e-mail: kov-rv007@ukr.net 
 
 <!---
